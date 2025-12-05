@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **ryanbahadori74@gmail.com**
 
-- ⚡ Fun fact **I love traveling.**
+- ⚡ Fun fact **I love Traveling.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
